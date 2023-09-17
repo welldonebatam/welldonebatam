@@ -2,6 +2,7 @@
 - 👀 I’m interested in graphic design
 - 🌱 I’m currently offering graphic design service 
 - 📫 How to reach me 0895385189950 by whatsapp
+- Thank You 🙏🏻
 
 <!---
 welldonebatam/welldonebatam is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
